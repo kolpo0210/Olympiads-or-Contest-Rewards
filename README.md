@@ -1,1 +1,0 @@
-# Olympiads-or-Contest-Rewards
